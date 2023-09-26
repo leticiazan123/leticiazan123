@@ -8,7 +8,7 @@ Meu nome é Letícia Zanlorensi
 
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você entra em contato comigo 
+### Você entra em contato comigo 💙
 
 leticia.zanlorensi@escola.pr.gov.br🌻
 
